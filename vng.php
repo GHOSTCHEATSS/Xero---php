@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1240348240788979796/1255132261863395370/XERO_VNG_protected.dll?ex=667c0482&is=667ab302&hm=826d7abcf61fe8e19d1f7f14c2f67787ff421281982acbb8e1f29ddbba5a5bd2&
