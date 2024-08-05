@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1268739764652216415/1269521560230826105/DEFAULTER_protected.dll?ex=66b05d96&is=66af0c16&hm=07dc88ddf5eee3dc159dcfb85d49df8395408bb146f222ed00a2c5b31a3896ae&
